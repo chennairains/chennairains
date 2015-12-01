@@ -59,6 +59,6 @@ III KANCHEEPURAM
 ## Real time updates on the situation on Twitter
 [#chennairains](https://twitter.com/hashtag/chennairains)
 
-## Chennai Places to stay offered/accepted #Chennairains 
+## Chennai Places to stay offered/accepted 
 [Google Document](https://docs.google.com/spreadsheets/d/1rZc3e9scewKxbZBn0vfDqkxOTy_NJYUBSfsVPgnkmdY/htmlview?usp=sharing&sle=true)
 
